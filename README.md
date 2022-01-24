@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+Please take a gander on what's up around here.
+
+👍😎🐱‍👤
+
 <!--
 **iexa/iexa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Please take a gander on what's up around here.
+Please take a gander at what's cookin' around here.
 
 👍😎🐱‍👤
 
